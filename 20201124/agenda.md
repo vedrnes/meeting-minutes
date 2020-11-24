@@ -19,7 +19,7 @@ https://sunet.zoom.us/my/fresia
 * Fresia Pérez
 * Dragoljub Nešić
 * Petter Dahl
-* Mirko
+* Mirko Stojmenović
 * Jesper Skagerberg
 
 ## Anteckningar
